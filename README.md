@@ -1,2 +1,0 @@
-# training-diary
-Suuuuu
